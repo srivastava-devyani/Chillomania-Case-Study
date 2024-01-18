@@ -7,5 +7,6 @@ We needed to create a strategy which includes:
 2. Online Marketing Presence Plan
 3. Martech Stack
 
-Uploading my presentation to invite collaborative problem-solving, showcase practical solutions, and engage a diverse community in the realms of marketing and e-commerce
+Uploading my presentation to invite collaborative problem-solving, showcase practical solutions, and engage a diverse community in the realms of marketing and e-commerce.
+ <a href="https://www.canva.com/design/DAF5lDdDIoM/HOpbZa_LEXw5uxAwyY73xg/edit?utm_content=DAF5lDdDIoM&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton"> Click here for Chillomania Presentation.
 
